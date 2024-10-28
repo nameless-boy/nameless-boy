@@ -1,2 +1,1 @@
-
-![near-death-note](https://github.com/user-attachments/assets/1c165fa2-f364-4921-81a5-f436a94c0cd3)
+![l-death-note-lawliet](https://github.com/user-attachments/assets/db23a018-91bb-408f-a764-eab2e7026d79)
