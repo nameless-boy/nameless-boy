@@ -1,2 +1,2 @@
 
-![5b293df6355dc64ddc1e94e2cdcecaba](https://github.com/user-attachments/assets/6e95d7d7-d681-41fc-b66d-be3826592d71)
+![near-death-note](https://github.com/user-attachments/assets/1c165fa2-f364-4921-81a5-f436a94c0cd3)
