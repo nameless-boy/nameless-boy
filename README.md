@@ -1,1 +1,1 @@
-![alien-stage-ivantill](https://github.com/user-attachments/assets/c0fac04e-b3a1-463e-af5f-28fb02856796)
+![devilman-crybaby](https://github.com/user-attachments/assets/3ecfe771-0e0e-46ce-ab51-2d8fba473dcd)
