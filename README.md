@@ -1,1 +1,1 @@
-![tamaki-suoh-kyoya-ootori](https://github.com/user-attachments/assets/931ef1f0-7087-40d8-b512-7beb92c7b0d2)
+![ouran-highschool-host-club-tamaki-suoh](https://github.com/user-attachments/assets/77237b15-6a9a-4954-af2f-76d6cef18a02)
