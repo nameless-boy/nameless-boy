@@ -1,1 +1,1 @@
-![saiki-saiki-k](https://github.com/user-attachments/assets/c027664a-2068-4089-a21a-1bddf1d2dd20)
+![tamaki-suoh-kyoya-ootori](https://github.com/user-attachments/assets/931ef1f0-7087-40d8-b512-7beb92c7b0d2)
