@@ -1,1 +1,1 @@
-![2acaa729f8612d36c5e64d9269b07c15](https://github.com/user-attachments/assets/a39cc6dc-0d3d-4105-976f-8b435fda3d63)
+![kyoya-ootori-ouran-highschool-host-club](https://github.com/user-attachments/assets/e0e5ad3f-538e-466e-953a-6b1cbdc5605a)
